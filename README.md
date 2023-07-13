@@ -1,1 +1,0 @@
-# niresh-subramanian.github.io
